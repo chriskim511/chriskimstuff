@@ -6,6 +6,14 @@ Period 7
 
 Main Projects
 
+FINAL PROJECT: 
+
+Chris Kim, Tianshi Wang, Brian Guo, David Liang
+
+leafyouonseen.com
+
+https://www.youtube.com/watch?v=sOsCwNPxT1o&feature=youtu.be
+
 Name Search
 
 Chris Kim, Julian Kal, Alex Libman, Ling 
